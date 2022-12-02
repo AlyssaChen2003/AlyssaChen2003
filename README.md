@@ -3,8 +3,8 @@
 ### I know life is hard and messy.
 ## MAKE SURE YOU GO THROUGH IT
 
-## 每一份报告都是我的心血
-## 愿计网的各位诸事顺利
+每一份报告都是我的心血
+愿计网的各位诸事顺利
 
 <!---
 RachelCullen/RachelCullen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
