@@ -1,5 +1,5 @@
 ## 👋 Hi there!
-### A junoir year student in College of Science in NKU
+### A junior year student in College of Science in NKU
 ### My Projects are here
 ### Feel free to explore:)
 
