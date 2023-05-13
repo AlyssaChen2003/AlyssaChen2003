@@ -1,9 +1,9 @@
 ## 👋 Hi there!
 ### A junior year student in College of Science in NKU
-### My Projects are here
-### Feel free to explore:)
 
 
+
+follow me on instagram https://www.instagram.com/alyssalalala2003/
 
 <!---
 RachelCullen/RachelCullen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
