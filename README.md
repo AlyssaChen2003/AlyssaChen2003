@@ -3,7 +3,7 @@
 
 
 
-follow me on [instagram]{https://www.instagram.com/alyssalalala2003/}
+follow me on [instagram](https://www.instagram.com/alyssalalala2003/)
 
 <!---
 RachelCullen/RachelCullen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
