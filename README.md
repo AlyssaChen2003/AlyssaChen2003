@@ -1,5 +1,5 @@
 ## 👋 Hi there!
-### A junior year student in College of Science in NKU
+### Year 4 student in College of Science in NKU
 
 
 
