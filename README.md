@@ -1,5 +1,7 @@
 ## 👋 Hi there!
-### Year 4 student in College of Science in NKU
+### 2020 NKU Computer Science
+### 2023fall HKBU Exchange
+### 2024 UOM MSc
 
 
 
