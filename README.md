@@ -1,11 +1,13 @@
 ## 👋 Hi there!
-### 2020 NKU Computer Science
-### 2023fall HKBU Exchange
-### 2024 UOM MSc
+2020 NKU BEng in Computer Science
+
+2023 HKBU UG Exchange
+
+2024 CUHK MSc in SEEM
 
 
 
-follow me on [instagram](https://www.instagram.com/alyssruiying/)
+follow me on [instagram](https://www.instagram.com/allllacry/)
 
 <!---
 RachelCullen/RachelCullen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
