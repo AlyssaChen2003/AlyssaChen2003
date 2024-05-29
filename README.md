@@ -1,13 +1,16 @@
 ## 👋 Hi there!
-2020 NKU BEng in Computer Science
+24' NKU BEng in CST
 
-2023 HKBU UG Exchange
+23' HKBU UG Exchange
 
-2024 CUHK MSc in SEEM
+25' CUHK MSc in SEEM
 
 
+### Contact
+[instagram:alllcry](https://www.instagram.com/alllacry/)
+[Gmail:alyssachen2003@gmail.com](alyssachen2003@gmail.com)
 
-follow me on [instagram](https://www.instagram.com/allllacry/)
+
 
 <!---
 RachelCullen/RachelCullen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
