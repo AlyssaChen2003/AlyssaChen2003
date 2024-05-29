@@ -9,7 +9,8 @@
 ### Contact
 [instagram](https://www.instagram.com/alllacry/)
 
-[Gmail](alyssachen2003@gmail.com)
+Gmail: alyssachen2003@gmail.com
+
 
 
 
