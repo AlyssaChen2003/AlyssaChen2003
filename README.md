@@ -5,6 +5,8 @@
 
 25' CUHK MSc in SEEM
 
+29‘ CityUHK PhD in DAO
+
 
 ### Contact
 [instagram](https://www.instagram.com/alllacry/)
